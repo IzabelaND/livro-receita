@@ -4,6 +4,6 @@
 
 - Strogonoff de Frango :baby_chick:
 - Pavê :chocolate_bar:
-- Bolo de chocolate
+- Bolo de chocolate :birthday:
 - Mousse de Chocolate 
 - Pudim
